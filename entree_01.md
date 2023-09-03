@@ -16,7 +16,7 @@ faire grâce à la formation :
 -Monteur vidéo
 -Vidéaste
 -Concepteur sonore
--Photographe
+-Photographe.
 
 
 
