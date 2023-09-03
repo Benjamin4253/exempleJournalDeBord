@@ -8,7 +8,9 @@ L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui 
 
 ### Lien 1 
 Expliquer pourquoi vous avez choisi ce lien. 
-
+Je suis donc,tu es!(https://youtu.be/AbE38wYdtrs?si=FTRJmY50o-4CzN6o)
+J'ai choisi ce lien,car c'est un court-métrage qui produit un message fort. En effet, il met en lumière la façon d'agir en société. Il explique aussi, que quand tu as une mauvaise journée avec beaucoup de négativité, tu partages ton esprit négatif aux autres. Alors, au lieu de partager du négatif, il faudrait transformer ce négatif en positif. Transformer l'émotion d'une personne et changer leur façon de cohabiter
+avec ces pairs m'intéresse vraiment.
 ### Lien 2 
 Expliquer pourquoi vous avez choisi ce lien.
 
