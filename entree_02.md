@@ -13,13 +13,27 @@ J'ai choisi ce lien,car c'est un court-métrage qui produit un message fort. En 
 avec ces pairs m'intéresse vraiment.
 ### Lien 2 
 Expliquer pourquoi vous avez choisi ce lien.
-
+Parcours Nocturne (https://forestalumina.com/)
+"Foresta Lumina" m'impressionne par sa fusion immersive entre la nature et la technologie. En effet,
 ### Lien 3 
-Expliquer pourquoi vous avez choisi ce lien.  
-
+Expliquer pourquoi vous avez choisi ce lien.
+Titanic vidéo 3D (https://youtu.be/BB-zEkxrSEI?si=1UZZm3fe_nDxbXaF)
+La vidéo utilise 700 000 photos pour créer une impressionnante reconstitution 3D de l'épave du Titanic. J'adore le fait qui ont présenter une partie de l'histoire mondiale avec l'aide de nouvelles technologies pour présenter le naufrage du titanic de manière immersive et interactive.
 ### Lien 4 
 Expliquer pourquoi vous avez choisi ce lien. 
+Humain (https://www.centredessciencesdemontreal.com/exposition-permanente/humain)
+L'exposition *Humain* m'interpelle beaucoup puisque c'est une exposition interactive
+destiné aux enfants. En effet, l'exposition fait apprendre les parties du corps avec
+une multitude d'activités qui font bouger. Faire apprendre aux enfants la science
+de l'être humain avec du multimédia est un parfait mélange.
 
 ### Lien 5 
-Expliquer pourquoi vous avez choisi ce lien. 
+Expliquer pourquoi vous avez choisi ce lien.
+quand la science rencontre la musique (https://www.francetvinfo.fr/culture/musique/video-cymatics-quand-la-science-rencontre-la-musique_744473.html)
+Un morceau musical est un enchaînement de fréquences. En effet, grace aux
+vibrations de la musique, le musicien Nigel Stanford a mis du sel, de l'eau
+de l'électricité et du feu sur des enceintes. En effet, lorsqu'il eu des vibrations
+les éléments bougeaient. On peut transmettre ça aux émotions humaines. En effet, lorsqu'on reçoit des compliments on a des pulsations du coeur.
+
+
 
