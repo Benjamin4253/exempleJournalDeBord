@@ -24,12 +24,24 @@ Quelle présentation avez-vous préféré et pourquoi?
 
 ### Entre le cours 1 et aujourd'hui, quelles découvertes as-tu faites sur le domaine du multimédia? 
 
+J’ai trouvé cela intéressant d’avoir appris les composantes à l’intérieur d’un ordinateur. Ça à permis d' élargir mes connaissances sur le sujet.
+
 ### As-tu découvert un nouveau métier qui pourrait t'intéresser? 
+
+Non, je veux toujours être un monteur vidéo.
 
 ### As-tu découvert un nouvel artiste qui t'a inspiré? 
 
+Non, mais j’ai toujours l'artiste du début de la session qui est Hayden Hillier-Smith, un youtubeur. Il analyse ce qui fait un bon montage, avec des explications claires. Grâce à lui, j'améliore mon niveau en tant que monteur.
+
 ### Pour quel type d'entreprise préférerais-tu travailler? 
+
+Je ne sais pas, mais une compagnie qui fait du montage vidéo.
 
 ### Est-ce qu'un des domaines du multimédia t'intéresse plus que les autres? 
 
+La vidéo.
+
 ### Est-ce que tu as préféré une sortie ou une conférence?
+
+La sortie, car il y avait plus d'interaction avec l’environnement en comparaison avec la conférence qu’on faisait seulement écouter quelqu'un parler.
